@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @umarfarooq1509
+- 👀 I’m interested in movies, shows and gaming.
+- 🌱 I’m currently learning ML, DL, and AI.
+- 📫 Reach me on +92 335 5579588 (whatsapp).
